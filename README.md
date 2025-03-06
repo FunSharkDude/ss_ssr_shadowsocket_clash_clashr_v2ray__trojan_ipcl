@@ -56,7 +56,7 @@ https://xinzhilian.xyz/register?code=7wOIOjnh
 
 https://m78star.cloud/#/register?code=FBpboMz4
 
-4）全中转大机场，拥有 100+ 节点 4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，澳门，台湾，美国，日本，新加坡，韩国，印度、菲律宾，泰国，越南，马来西亚，印度尼西亚，德国，俄罗斯，英国，荷兰，加拿大，澳大利亚，乌克兰，法国，土耳其，巴基斯坦，沙特阿拉伯，埃及，墨西哥，尼日利亚，巴西，阿根廷，澳大利亚，新西兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**注册即可试用3天5G流量试用**
+4）全中转大机场，拥有 100+ 节点 4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，澳门，台湾，美国，日本，新加坡，韩国，印度、菲律宾，泰国，越南，马来西亚，印度尼西亚，德国，俄罗斯，英国，荷兰，加拿大，澳大利亚，乌克兰，法国，土耳其，巴基斯坦，沙特阿拉伯，埃及，墨西哥，尼日利亚，巴西，阿根廷，澳大利亚，新西兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。**注册试用3天5G流量试用**
 
 https://cloud.halo.do/auth/signup?referrer=tKEvsIWT
 
