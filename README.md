@@ -15,9 +15,9 @@ https://tagss.pro/#/auth/uymBgx8S
 
 https://flafflnk01.flaff9.cc/auth/register?code=dzyz
 
-3）多入口隧道中转SS线路，国内多入口，高SLA保证高端大机场，低价格，高品质，速度拉满，有 "流量包" 套餐。节点包括：港，台，日，美，韩，新加坡等。全节点流媒体支持，包括ChatGPT/Netfilx/Disney+/Dazn/动画疯/Abema/DMM等，套餐可低至每月 6 块 6 毛 6。并且赠送Emby服务，数万部4K高清电影电视剧免费观看，热门综艺电视剧实时更新。**（永久）新人8折优惠码：NiceDuck**
+3）全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体，解锁 ChatGPT。**提供不限时纯流量一次性套餐，月付23即可888G大流量**
 
-https://my.niceduck.io/register?code=g1axG9Gs
+https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ
 
 4）高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁。
 
@@ -62,7 +62,7 @@ https://cloud.halo.do/auth/signup?referrer=tKEvsIWT
 
 5）不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元2G流量不限时**。
 
-https://mojie.co/register?aff=kaPXUS5U
+https://mojie.ws/#/register?code=kaPXUS5U
 
 ************************************************** 初 级 机 场 区 *******************************************************
 
