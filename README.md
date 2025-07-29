@@ -82,7 +82,7 @@ https://yunduanxin.net/
 
 https://addyoutube.com/
 
-1）Andorid系统下推荐可用的客户端
+### Andorid系统推荐可用的客户端
 
 SS： https://github.com/shadowsocks/shadowsocks-android/releases
 
@@ -100,7 +100,19 @@ Surfboard: https://github.com/getsurfboard/surfboard/releases
 
 NekoBoxForAndroid: https://github.com/MatsuriDayo/NekoBoxForAndroid/releases
 
-2）IOS系统下推荐可用的客户端
+### IOS系统推荐可用的客户端
+
+**Apple id账号租用：**
+
+👉渠道一：https://xintaikeji.eu.org **（推荐✅）**
+
+👉渠道二：https://www.wxsdg.store/ **（推荐✅）**
+
+👉渠道三：https://852faka.pro/ **（推荐✅）**
+
+👉渠道四：https://appledi.com/ **（免费共享账号，安全风险高，不推荐❗）**
+
+👉渠道五：[shadowrocket中文网分享](https://www.shadowrocket.vip/shadowrocket%E4%BD%BF%E7%94%A8%E6%95%99%E7%A8%8B/2025%E5%B9%B4%E6%9C%80%E6%96%B0%E5%B0%8F%E7%81%AB%E7%AE%ADshadowrocket%E8%8B%B9%E6%9E%9C%E6%9C%80%E6%96%B0id%E8%B4%A6%E5%8F%B7%E5%85%B1%E4%BA%AB.html) **（免费共享账号，安全风险高，不推荐❗）**
 
 shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118
 
@@ -114,7 +126,7 @@ Loon: https://apps.apple.com/ca/app/loon/id1373567447
 
 stash: https://apps.apple.com/ca/app/stash-rule-based-proxy/id1596063349
 
-3）Windows下推荐可用的客户端
+### Windows系统推荐可用的客户端
 
 SS： https://github.com/shadowsocks/shadowsocks-windows/releases
 
@@ -130,16 +142,24 @@ nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
 
-4）MAC下推荐可用的客户端
+fl-clash:https://github.com/chen08209/FlClash/releases
+
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
+
+### MacOS系统推荐可用的客户端
 
 clashVerge: https://github.com/zzzgydi/clash-verge/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
 
-5）Linux下推荐可用的客户端
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
+
+### Linux系统推荐可用的客户端
 
 clashVerge: https://github.com/zzzgydi/clash-verge/releases
 
 nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
 clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+
+mihomo-party:https://github.com/mihomo-party-org/mihomo-party/releases
