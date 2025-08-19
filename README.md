@@ -23,9 +23,9 @@ https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ
 
 https://shuttle.gt-all.com/aff.php?aff=2437
 
-5）老牌全专线IPLC机场，提供200+节点数量，节点包括香港，台湾，日本，新加披，美国，英国，马来西亚，土耳其，阿根廷等，**客户端数量不限**，高速稳定，解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体，快速客服响应，**注册即享 3 天免费体验（优惠码：free）。**
+5）全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，不限制设备登录数。
 
-https://webinv02.sc-aff.cc/auth/register?code=wEnH
+https://inv02.fatcatcloud.cc/register?aff=WEWVCoWn
 
 ************************************************** 高 级 机 场 区 ******************************************************* ************************************************** 中 级 机 场 区 *******************************************************
 
