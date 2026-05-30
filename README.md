@@ -54,7 +54,7 @@ https://dash.fscloud.app/#/register?code=rsFPPHnq
 
 2）全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。**月最低14，享受120G大流量，30元即可享受150G不限时流量**
 
-https://xinzhilian.xyz/register?code=7wOIOjnh
+https://zzzzz8.com/register?code=7wOIOjnh
 
 3）G口负载，IPLC线路高端SS专线，4K流畅，8K不卡，奈飞，迪士尼，chatgpt全解锁，节点包括：港，台，日，美，新加坡，韩国，阿根廷，土耳其，南极，乌克兰，印度尼西亚，丹麦，德国，荷兰，埃及，尼日利亚等。节点不限速，不限制设备数量，购买3个月以上还赠送NetFlix，Disney+独立车位。也有不限时纯流量包可选。套餐价格低至**每月7.8块**，**新用户7.8折优惠码：m78-22off，永久有效**
 
@@ -62,7 +62,7 @@ https://m78star.cloud/#/register?code=FBpboMz4
 
 4）不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，**价格最低可至 1 元2G流量不限时，独家提供海外用户回国套餐**。
 
-https://mojie.ws/#/register?code=kaPXUS5U
+https://mojie.app/register?aff=kaPXUS5U
 
 5）全中转大机场，拥有 100+ 节点 4K 视频无卡顿、8K 超清流畅。套餐可联系客服定制。节点包括包括香港，台湾，美国，日本，新加坡，韩国，越南，马来西亚，印度，德国，俄罗斯，英国，加拿大，乌克兰等。解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。提供不限时流量，用完即止。
 
