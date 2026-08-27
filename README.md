@@ -21,7 +21,7 @@ https://tmsreta.top/zh/#/auth/signup;referral=3h8G4ZaQ
 
 4）高级专线大机场，原生IP，节点包括，港，台，美，日，新，韩，印，菲，加拿大，阿根廷，英，法，德，意大利，荷兰，俄罗斯，土耳其，澳大利亚，埃及，新西兰，南非等，带宽跑满，特殊时期不受影响，服务态度好，非常稳定，高速不限速，当地流媒体全解锁。
 
-https://shuttle.gt-all.com/aff.php?aff=2437
+https://s.gtna.net/aff.php?aff=2437
 
 5）全中转大带宽，IEPL专线，不限速高端专线机场，秒开4K，支持8K！不限速，所有节点x1倍率。节点包括香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。流媒体解锁，支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。支持ChatGPT、Claude等AI tools，高性能Trojan协议，不限制设备登录数。
 
